@@ -1,0 +1,5 @@
+- �Hello, I’m @skittlesyum but you can just call me skittles.
+- � I’m currently interested in many things that include writing and my newest one, coding which I have gotten exceptionally good at.
+- 🌱 I’m currently learning how to code games and websites.
+- � I’m looking to collaborate on a small game project.
+- 📫 you can reach me with my email, avigidaszewski@gmail.com
